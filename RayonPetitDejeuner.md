@@ -1,3 +1,3 @@
-Pains au lait
+Cereales
 café
 biscottes
